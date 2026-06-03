@@ -1,6 +1,6 @@
 # DDTANK12.6
 Hello I would like to suggest to you this website for downloading games such as DDTANK 12.6
-
+https://pan.baidu.com/s/1L_MELDL3WQgfxKukyQ6xFg?pwd=6666
 
 
  and other famous games from the Chinese site Baidu for a very reasonable price where your file is uploaded to Google Drive
